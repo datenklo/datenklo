@@ -7,7 +7,7 @@ Just shaving the Yak:
 
 Oh, one last word (In Germen, sorry!):
 
-"Nicht dass ich mir je Illusionen darüber machte, wie viele Gestörte, Esoteriktrottel, Gemütlichkeitsfaschisten, Bachblütenmuttis, Vollnazis, Verschwörungsgläubige, "Deutschland"-Brüller, Feuerabendeugeniker und Homöopathiehippies in ihren Hobbykellern, Wirtshaushinterzimmern und Garagen an ihren Allmachtsfantasien, Vernichtungswünschen und Wahnvorstellungen herumbasteln, aber das ca. 97 Prozent aller Journalistinnen und Journalisten in den bürgerlichen Zeitungsredaktionen diesem täglich wachsenden Arschgeigenmilieu ungefähr so kritisch gegenüberstehen wie Jumbo Schreiner einem guten Schweinebraten, bringt mich mittlerweile dazu mit größerem Interesse als bisher im Weltatlas zu blättern."
+"Not that I ever had any illusions about how many deranged people, esoteric morons, cozy fascists, Bach flower moms, full Nazis, conspiracy believers, "'Murica" yellers, after-work deugenics and homeopathy hippies are tinkering with their omnipotence fantasies, annihilation wishes and delusions in their hobby cellars, pub back rooms and garages, but that approx. 97 percent of all journalists in the bourgeois newspaper editorial offices are about as critical of this daily growing ass-kicking milieu as a typical US-Citizen is of a good roast pork makes me leaf through the world atlas with much greater interest than before."
 <!---
 datenklo/datenklo is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
